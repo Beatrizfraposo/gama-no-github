@@ -1,0 +1,1 @@
+Até o momento estou gostando do curso, estou conseguindo aprender os conceitos de forma clara para começar minha carreira como desenvolvedora!
